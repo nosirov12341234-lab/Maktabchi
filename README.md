@@ -1,0 +1,2 @@
+# Maktabchi
+Maktablar oʻrtasida muloqot
